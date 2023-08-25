@@ -11,3 +11,4 @@ Hiking offers numerous benefits for physical, mental, and emotional well-being. 
 
    My Favorite Hiking place is https://www.wta.org/go-hiking/hikes/rattlesnake-ledge
    
+![Rattlesnake_Ledge 2](https://github.com/Shadowwasher/MYfavoriteHiking/assets/143032378/d53ec694-c559-4113-b853-6e3019d0efd2)    
