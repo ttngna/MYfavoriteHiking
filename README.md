@@ -1,7 +1,7 @@
 **Hiking**
 
 Hiking offers numerous benefits for physical, mental, and emotional well-being. It provides a chance to exercise in nature, improving cardiovascular health, muscle strength, and overall fitness. Hiking also reduces stress, boosts mood, and enhances mental clarity by immersing you in natural surroundings. Additionally, it offers an opportunity for social interaction when done with friends or groups. Exploring new trails can lead to a sense of adventure and accomplishment, contributing to personal growth and a deeper connection with the outdoors.
-# Three reasons why you enjoy hiking
+# Three reasons why I enjoy hiking
 
 1. **Mental Health Boost:** Hiking provides a refreshing escape from the routine, allowing you to disconnect from daily stressors and immerse yourself in nature. The peaceful surroundings and physical activity can have a positive impact on your mental well-being, reducing anxiety and improving your overall mood.
 
