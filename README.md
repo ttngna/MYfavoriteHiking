@@ -14,3 +14,4 @@ Hiking offers numerous benefits for physical, mental, and emotional well-being. 
 4. **Strengthen bond with loved ones:** You will never know what you may encounter on the trails. Working together with your friends and family to solve problems while communicating effectively can help improve the relationship you have and create a bond that allows you to continue enjoying the outdoors together! 
   
 ![Rattlesnake_Ledge 2](https://github.com/Shadowwasher/MYfavoriteHiking/assets/143032378/d53ec694-c559-4113-b853-6e3019d0efd2)    
+![Pilchuck hike](https://github.com/Shadowwasher/MYfavoriteHiking/assets/142946998/d73d79d7-39e0-4692-b323-8118ad701010)
