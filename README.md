@@ -12,3 +12,5 @@ Hiking offers numerous benefits for physical, mental, and emotional well-being. 
 3. **Scenic Exploration:** Hiking takes you to breathtaking landscapes and scenic vistas that you might not encounter otherwise. Exploring new trails lets you witness the beauty of nature up close, offering a visual feast of mountains, forests, rivers, and more, creating lasting memories and inspiring a deeper appreciation for the world around you.
   
 ![Rattlesnake_Ledge 2](https://github.com/Shadowwasher/MYfavoriteHiking/assets/143032378/d53ec694-c559-4113-b853-6e3019d0efd2)    
+
+![Pilchuck hike](https://github.com/Shadowwasher/MYfavoriteHiking/assets/142946998/5826fdaa-18ea-4f70-b684-a98236e710cb)
